@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @RaulAlexRueda
+- 👀 I’m interested in science and continous learning
+- 🌱 I’m currently learning different coding languages
+- 💞️ I’m looking to collaborate on ...dont know jet
+- 📫 How to reach me ...here
+- 😄 Pronouns: sir
+- ⚡ Fun fact: I am old but i havent grown up jet ...
